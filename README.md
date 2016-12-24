@@ -16,6 +16,9 @@ CONGRATULATION
 
 AND WILL STAY FROM 12/23/2016-12/23/2026
 
-This thi the next DAY
+===========================================
+Things Will Change
+
+This is the next DAY
 
 "12/24/2016"
